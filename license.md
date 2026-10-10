@@ -52,4 +52,4 @@ Yes — download again and repeat the steps.
 
 <p align="center"><a href="https://share.google/BZXpOlL6ox86KJDXf"><b>⬇ Download Instagram Scraper — free (2026)</b></a></p>
 
-<p align="center"><sub>Shared under the MIT License · Updated 2026-10-09</sub></p>
+<p align="center"><sub>Shared under the MIT License · Updated 2026-10-10</sub></p>
